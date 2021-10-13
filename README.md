@@ -8,3 +8,5 @@
 I can write LSL, but people don't know it and aren't interested in it.
 But I can and have written it anywhere and at any time.
 It's as lonely as a noodle shop owner in the middle of nowhere, but I believe it's memorable for some people in the world.
+
+ <a href="https://www.facebook.com/NRSD.Sou.Ishikawa/videos/10221268102913329">　　　　　　　　　　　　　　　　　</a>
